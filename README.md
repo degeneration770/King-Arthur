@@ -211,4 +211,4 @@ King Arthur is offered as a complete free version, including all features and up
 Download King Arthur today and embark on your legendary adventure! Experience the thrill of strategy, the excitement of battles, and the magic of Arthurian lore. **Get started now!**
 
 ---
-**Last updated:** 2026-09-20 22:53:31 UTC
+**Last updated:** 2026-09-21 00:46:37 UTC
